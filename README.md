@@ -1,5 +1,6 @@
-### Hi there 👋
-Quý Thuần Khanh
+Facebook: https://www.facebook.com/khanhcosines
+GitHub: https://github.com/thuankhanh27cuti
+Discord: https://discordapp.com/users/1036521989562703932
 
 <!--
 **thuankhanh27cuti/thuankhanh27cuti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
